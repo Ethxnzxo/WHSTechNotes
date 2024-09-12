@@ -2,6 +2,11 @@
 
 This is an example entry.
 
+# September 12, 2024
+
+The Wagner five P's are: Polite, Productive, Promnpt, and Prepared.
+One of thenfive P's i chose was positive, i chose this because the way it will in computer science class is by if you mess up you stay positive to keep working on it.
+
 
 
 

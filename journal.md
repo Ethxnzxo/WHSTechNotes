@@ -21,9 +21,15 @@ The C is chose was confident because i believe that uif you are confident in wha
 
 The challenges i encountered while making the maze is making it big enough for the Sphero BOLT i overcame this by making the lines bigger.  
 
+# September 27, 2024
 
+What i found easier to under stand was the block coding because it was more simple. 
 
+The two approaches i took to solve coding challenges is start over again or go over it again to make sure i did it right.
 
+I feel like i had more control in Python because there was more to do in theree besides blocks.
+
+i feel like python would be more useful in the real world than sphero because it has more than the block coding and you can do more with it.
 
 
 

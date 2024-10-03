@@ -27,12 +27,10 @@ What i found easier to under stand was the block coding because it was more simp
 
 The two approaches i took to solve coding challenges is start over again or go over it again to make sure i did it right.
 
-I feel like i had more control in Python because there was more to do in theree besides blocks.
 
-i feel like python would be more useful in the real world than sphero because it has more than the block coding and you can do more with it.
+# October 3, 2024
 
-
-
+One of my daily activites where computer science plays a role is when im on google and looking for a file and i remember to go to github because of this class.
 
 
 

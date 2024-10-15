@@ -32,7 +32,11 @@ The two approaches i took to solve coding challenges is start over again or go o
 
 One of my daily activites where computer science plays a role is when im on google and looking for a file and i remember to go to github because of this class.
 
+# October 15, 2024
 
+Coding can help with problem solving skills by sowing more than one solution 
+
+Coding can help you better in real life by helping you find your mistakes more
 
 
 

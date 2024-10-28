@@ -38,7 +38,11 @@ Coding can help with problem solving skills by sowing more than one solution
 
 Coding can help you better in real life by helping you find your mistakes more
 
+# October 21, 2024
 
+AI can be helpful by using self driving and it can also be useful by seeing what is wrong with paitents in a hospital
+
+AI however, can be harmful by pretending to be someone by using their voice or they can crash  while using self driving.
 
 
 

@@ -48,6 +48,9 @@ AI however, can be harmful by pretending to be someone by using their voice or t
 
 Computer science helps alot in the election by securing the canadites plans and by doing promotional stuff
 
+# November 12,2024
+
+The concepts of the stuff we have been learning in class helps in my daily routine by showing me hardwork because it helps me in reeal life with showing me how to do hard work
 
 
 

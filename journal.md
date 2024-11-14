@@ -44,11 +44,11 @@ AI can be helpful by using self driving and it can also be useful by seeing what
 
 AI however, can be harmful by pretending to be someone by using their voice or they can crash  while using self driving.
 
-# October 28,2024
+# October 28, 2024
 
 Computer science helps alot in the election by securing the canadites plans and by doing promotional stuff
 
-# November 12,2024
+# November 12, 2024
 
 The concepts of the stuff we have been learning in class helps in my daily routine by showing me hardwork because it helps me in reeal life with showing me how to do hard work
 

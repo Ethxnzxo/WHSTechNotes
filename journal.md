@@ -52,7 +52,9 @@ Computer science helps alot in the election by securing the canadites plans and 
 
 The concepts of the stuff we have been learning in class helps in my daily routine by showing me hardwork because it helps me in reeal life with showing me how to do hard work
 
+# December 2, 2024
 
+One emerging technology is the tesla roots which also uses ai to work. What concerns me about this is that we dont know what they are capable of they could turn on us. However this can be useful in the work industry by doing work for humans that cant do it.
 
 
 

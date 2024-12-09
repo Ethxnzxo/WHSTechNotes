@@ -56,8 +56,10 @@ The concepts of the stuff we have been learning in class helps in my daily routi
 
 One emerging technology is the tesla roots which also uses ai to work. What concerns me about this is that we dont know what they are capable of they could turn on us. However this can be useful in the work industry by doing work for humans that cant do it.
 
+# December 9, 2024
 
-
+i think brainrot is a really controversial word becauses teens-adults reaally dont like it however younger people like it alot.
+Runner up words like lore and slop are confusing to me honestly because lore is kind of like story in like a movie or a game and i usually get confused by that. 
 
 
 

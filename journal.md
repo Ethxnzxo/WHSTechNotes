@@ -61,7 +61,13 @@ One emerging technology is the tesla roots which also uses ai to work. What conc
 i think brainrot is a really controversial word becauses teens-adults reaally dont like it however younger people like it alot.
 Runner up words like lore and slop are confusing to me honestly because lore is kind of like story in like a movie or a game and i usually get confused by that. 
 
+# January 8, 2025
 
+Back on last semester i found the zumi and the sphero pretty cool but zumi had a huge learning curve. The topics ahead i think i want to learn is more coding i dont know an specifcs however. Im not sure if i want to do cetrifications on this class yet but ill find out soon.
+
+# January 13, 2025
+
+My thoughts on the AI shift is kinda of in the middle because AI can be really helpful but can be harmful because it can take away peoples jobs or it can impresonate someone on the internet.
 
 
 

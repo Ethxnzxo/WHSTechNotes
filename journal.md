@@ -69,9 +69,9 @@ Back on last semester i found the zumi and the sphero pretty cool but zumi had a
 
 My thoughts on the AI shift is kinda of in the middle because AI can be really helpful but can be harmful because it can take away peoples jobs or it can impresonate someone on the internet.
 
+# January 22, 2025
 
-
-
+The tiktok ban makes Americans feel there privacy at risk and there freedom of speech because tiktok wasnt ran by a american company so there wasnt any censorship. This relates to class because the coding and stuff helps tiktok be tiktok
 
 
 

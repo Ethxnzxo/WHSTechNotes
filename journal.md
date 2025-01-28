@@ -73,9 +73,14 @@ My thoughts on the AI shift is kinda of in the middle because AI can be really h
 
 The tiktok ban makes Americans feel there privacy at risk and there freedom of speech because tiktok wasnt ran by a american company so there wasnt any censorship. This relates to class because the coding and stuff helps tiktok be tiktok
 
+# January 27, 2025
 
-
-
+| Syntax      | Description | Test Text     |
+| :---        |    :----:      |          ---:         |
+| Jimmy       | Honda Civic    | Left Stains On Carpet |
+| Kayla       | GMC Sierra     | Fixed Wrong Problem   |           |
+| Bart        | Toyota Corolla | Left Stains On Carpet |
+| Harrison    | Subaru Forester| Left The Oil Cap Off  | 
 
 
 

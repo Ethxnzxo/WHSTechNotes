@@ -83,7 +83,12 @@ The tiktok ban makes Americans feel there privacy at risk and there freedom of s
 | Harrison    | Subaru Forester| Left The Oil Cap Off  | 
 
 
+# February 4, 2025
 
+Air control systems help with prevent crashes by letting you communicate with pilots so you dont crash.
+AI in aircraft helps so theres not much errors.
+Coding flaws and misconunication can make accidents because you dont know where people are going.
+Unclear alerts play a huge part in crashes than interface.
 
 
 

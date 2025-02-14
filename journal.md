@@ -90,7 +90,7 @@ AI in aircraft helps so theres not much errors.
 Coding flaws and misconunication can make accidents because you dont know where people are going.
 Unclear alerts play a huge part in crashes than interface.
 
-# February 4, 2025
+# February 11, 2025
 
 Some features i would include for my software on the superbowl is making plays on the fly and getting access to previous plays they did in other games. The data structres i would use is a top down list to find thhe plays easier. A sorting option would be least used plays to most used bcause if you keep using the same one you would be too predictable.
 

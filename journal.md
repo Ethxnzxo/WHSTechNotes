@@ -98,6 +98,9 @@ Some features i would include for my software on the superbowl is making plays o
 
 Technology can play a crucial role in helping educators and service providers stay updated on evolving youh language by intergrating Ai powered tools that analyze social media trends and online discussions
 
+# March 3, 2025
+
+I feel like some kids in the class did make the subsititutes job harder to do but i also feel like the class was quiet but thats just me because i wasnt paying attention but if they were loud i think we should follow  directions
 
 
 

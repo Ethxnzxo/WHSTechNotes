@@ -102,7 +102,9 @@ Technology can play a crucial role in helping educators and service providers st
 
 I feel like some kids in the class did make the subsititutes job harder to do but i also feel like the class was quiet but thats just me because i wasnt paying attention but if they were loud i think we should follow  directions
 
+# March 17, 2025
 
+The technogolgy i used most of the time was my playstation playing games and on my phone. This entertained me over the break because i was playing games on them. This can help me in class because i can understand more abut tech
 
 
 

@@ -106,7 +106,9 @@ I feel like some kids in the class did make the subsititutes job harder to do bu
 
 The technogolgy i used most of the time was my playstation playing games and on my phone. This entertained me over the break because i was playing games on them. This can help me in class because i can understand more abut tech
 
+# March 24, 2025
 
+I believe technogoly is good for sports because it can be easier to broadcast and it can make offciating easier and refs better so there can be more fair to players and coaches like lebron james the amazing king
 
 
 

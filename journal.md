@@ -110,7 +110,9 @@ The technogolgy i used most of the time was my playstation playing games and on 
 
 I believe technogoly is good for sports because it can be easier to broadcast and it can make offciating easier and refs better so there can be more fair to players and coaches like lebron james the amazing king
 
+# March 31, 2025
 
+My mental and self care are fine, no idea what else to put here honestly.
 
 
 

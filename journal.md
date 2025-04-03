@@ -114,7 +114,9 @@ I believe technogoly is good for sports because it can be easier to broadcast an
 
 My mental and self care are fine, no idea what else to put here honestly.
 
+# April 3, 2025
 
+I did the dance party activity and it was about using AI to make dance moves and effects
 
 
 

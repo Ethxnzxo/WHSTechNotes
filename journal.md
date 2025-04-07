@@ -118,7 +118,9 @@ My mental and self care are fine, no idea what else to put here honestly.
 
 I did the dance party activity and it was about using AI to make dance moves and effects
 
+# April 7, 2025
 
+AI apps can help you learn by not giving you the answer to questions but helping you and showing you how to solve them, this is an execllent way to tutor when you have no body else around.
 
 
 

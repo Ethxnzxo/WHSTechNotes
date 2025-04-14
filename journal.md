@@ -122,6 +122,10 @@ I did the dance party activity and it was about using AI to make dance moves and
 
 AI apps can help you learn by not giving you the answer to questions but helping you and showing you how to solve them, this is an execllent way to tutor when you have no body else around.
 
+# April 30, 2025 
+
+I feel like social media and phones in schools shouldnt be banned due to people using their devices during lunch so they wont be bored.
+
 
 
 

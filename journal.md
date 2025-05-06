@@ -126,7 +126,9 @@ AI apps can help you learn by not giving you the answer to questions but helping
 
 I feel like social media and phones in schools shouldnt be banned due to people using their devices during lunch so they wont be bored.
 
+# May 6, 2025
 
+I feel like 100 men can over power a gorilla due to the fact that the gorilla can only take one person down at a time and the 100 men can take it down before it can even start doing that.
 
 
 

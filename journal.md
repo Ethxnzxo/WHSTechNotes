@@ -130,7 +130,9 @@ I feel like social media and phones in schools shouldnt be banned due to people 
 
 I feel like 100 men can over power a gorilla due to the fact that the gorilla can only take one person down at a time and the 100 men can take it down before it can even start doing that.
 
+# May 19, 2025
 
+ Im so ready for summer because im tired of school
 
 
 

@@ -134,6 +134,10 @@ I feel like 100 men can over power a gorilla due to the fact that the gorilla ca
 
  Im so ready for summer because im tired of school
 
+# September 2, 2025
+
+I dont like the new phone ban because you cant use them in lunch and teachers have impletmented them in class just for them to be banned.  
+
 
 
 

@@ -138,7 +138,9 @@ I feel like 100 men can over power a gorilla due to the fact that the gorilla ca
 
 I dont like the new phone ban because you cant use them in lunch and teachers have impletmented them in class just for them to be banned.  
 
+# September 11, 2025
 
+Computer science can be really helpful with medical stuff because it helps sort out the paitents and lets us read whats wrong with them easier.
 
 
 

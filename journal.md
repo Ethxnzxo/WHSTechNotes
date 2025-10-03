@@ -142,10 +142,14 @@ I dont like the new phone ban because you cant use them in lunch and teachers ha
 
 Computer science can be really helpful with medical stuff because it helps sort out the paitents and lets us read whats wrong with them easier.
 
+# September 22, 2025
 
+I believe vitural jobs can work, however i just dont think it would work for ikea, due to the fact you buy actually buy physical items there like food and other items. Since they are a physical store it just wouldnt work, maybe stuff like amazon would but just not amazon.
 
+# September 30, 2025
 
-
+67 is a meme mainly known by a kid named the six seven kid, it is mainly used in a joking tone due to the orginal meme being a joke and people use it in the halls whenever they see or hear something relating to the joke.
+it is also more than likely said in a joking tone as well, since the joke came from a joke.
 
 
 

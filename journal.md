@@ -151,8 +151,14 @@ I believe vitural jobs can work, however i just dont think it would work for ike
 67 is a meme mainly known by a kid named the six seven kid, it is mainly used in a joking tone due to the orginal meme being a joke and people use it in the halls whenever they see or hear something relating to the joke.
 it is also more than likely said in a joking tone as well, since the joke came from a joke.
 
+# October 20, 2025
 
-
+| Syntax      | Description | Test Text     |
+| :---        |    :----:   |          ---: |
+| Header      | Title       | Here's this   |
+| Franklin    | Second      | 91A           |
+| Hardeep     | Third       | 61f           |
+| Marla       | First       | 35B           |
 
 
 

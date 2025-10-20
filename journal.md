@@ -155,7 +155,6 @@ it is also more than likely said in a joking tone as well, since the joke came f
 
 | Syntax      | Description | Test Text     |
 | :---        |    :----:   |          ---: |
-| Header      | Title       | Here's this   |
 | Franklin    | Second      | 91A           |
 | Hardeep     | Third       | 61f           |
 | Marla       | First       | 35B           |

@@ -159,8 +159,13 @@ it is also more than likely said in a joking tone as well, since the joke came f
 | Hardeep     | Third       | 61f           |
 | Marla       | First       | 35B           |
 
+# October 27, 2025
 
-
+| Name        | Main Dish   | Dessert       |
+| :---        |    :----:   |          ---: |
+| Fiona       | Gado Gado       | Creme Brulee        |
+| Tobias      | Shrimp Cecviche | French Apple Cake   |
+| Leanne      | Beef Wellington |  Raspberry Tiramisu | 
 
 
 

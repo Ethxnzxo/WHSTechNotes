@@ -167,7 +167,9 @@ it is also more than likely said in a joking tone as well, since the joke came f
 | Tobias      | Shrimp Cecviche | French Apple Cake   |
 | Leanne      | Beef Wellington |  Raspberry Tiramisu | 
 
+# November 3, 2025
 
+If SNAP runs out of funds a ton of struggling families could be in danger since they may not be able toget food so they would starve and being able to get food they  
 
 
 

@@ -169,7 +169,7 @@ it is also more than likely said in a joking tone as well, since the joke came f
 
 # November 3, 2025
 
-If SNAP runs out of funds a ton of struggling families could be in danger since they may not be able toget food so they would starve and being able to get food they  
+If SNAP runs out of funds a ton of struggling families could be in danger since they may not be able toget food so they would starve and being able to get food. Since there is no snap, lots of places are affected like the food bank since much more people will be going there because of the SNAP defunding.
 
 
 

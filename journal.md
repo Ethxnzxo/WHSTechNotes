@@ -175,6 +175,10 @@ If SNAP runs out of funds a ton of struggling families could be in danger since 
 
 Yes because I can get away from Braiden because he is weird
 
+# December 1, 2025
+
+Drones could be good and bad because it can reduce energy and time because delivery drones can be charged easier than refilling gas.
+
 
 
 

@@ -179,8 +179,9 @@ Yes because I can get away from Braiden because he is weird
 
 Drones could be good and bad because it can reduce energy and time because delivery drones can be charged easier than refilling gas.
 
+# December 9, 2025
 
-
+AI selfdriving can be bad because unexpected things can ahppen before the AI can react that a human can react fastert too
 
 
 

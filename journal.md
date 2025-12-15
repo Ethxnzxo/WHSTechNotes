@@ -183,9 +183,9 @@ Drones could be good and bad because it can reduce energy and time because deliv
 
 AI selfdriving can be bad because unexpected things can ahppen before the AI can react that a human can react fastert too
 
+# December 15, 2025
 
-
-
+My plans for the upcoming break is to sleep open presents and hang out with family during and before christmas.
 
 
 

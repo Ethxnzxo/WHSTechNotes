@@ -187,6 +187,10 @@ AI selfdriving can be bad because unexpected things can ahppen before the AI can
 
 My plans for the upcoming break is to sleep open presents and hang out with family during and before christmas.
 
+# January 6, 2026
+
+I used technology thruout the break to play games and watch videos. I also used it to play music at the christmas party. Further more i used it on my phone to call my parents
+
 
 
 

@@ -191,6 +191,9 @@ My plans for the upcoming break is to sleep open presents and hang out with fami
 
 I used technology thruout the break to play games and watch videos. I also used it to play music at the christmas party. Further more i used it on my phone to call my parents
 
+# January 12, 2026
+
+Autcraft was created for autistic childern who dont have a safe space for them online. The harm that can come from online is immense, such as ddosing, threats, and doxxing.  Autcrafts choices helps it community with its moderation and security, which stops people from doing bad stuff on the internet like usual.
 
 
 

@@ -195,6 +195,11 @@ I used technology thruout the break to play games and watch videos. I also used 
 
 Autcraft was created for autistic childern who dont have a safe space for them online. The harm that can come from online is immense, such as ddosing, threats, and doxxing.  Autcrafts choices helps it community with its moderation and security, which stops people from doing bad stuff on the internet like usual.
 
+# January 29, 2026
+
+I took the MAP test and i feel good about my proformance because i took my time
+
+
 
 
 

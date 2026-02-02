@@ -199,7 +199,9 @@ Autcraft was created for autistic childern who dont have a safe space for them o
 
 I took the MAP test and i feel good about my proformance because i took my time
 
+# February 2, 2026
 
+Self care and personal hygeine is important because its how other people judge you off of, sadly so if you dont look okay, people will judge you off of them.Furthermpre people with hearing problems can be really affected by loud noises.
 
 
 

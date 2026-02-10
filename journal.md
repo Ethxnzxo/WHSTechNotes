@@ -203,8 +203,9 @@ I took the MAP test and i feel good about my proformance because i took my time
 
 Self care and personal hygeine is important because its how other people judge you off of, sadly so if you dont look okay, people will judge you off of them.Furthermpre people with hearing problems can be really affected by loud noises.
 
+# February 10, 2026
 
-
+I kinda enjoy football i guess, i only really watch the AFC championship and NFC games because i dont want to pay for the subscribtions and dont have time for the normal games. I personally didnt like the superbowl this year, since the boring scores until the 4th.
 
 
 

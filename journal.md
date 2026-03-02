@@ -207,6 +207,10 @@ Self care and personal hygeine is important because its how other people judge y
 
 I kinda enjoy football i guess, i only really watch the AFC championship and NFC games because i dont want to pay for the subscribtions and dont have time for the normal games. I personally didnt like the superbowl this year, since the boring scores until the 4th.
 
+# February 23, 2026
+
+I believe some of the most important technology used in the olyimpics were the cameras and the sensors thru out all of the sports. We can especially see this in the skating one and the disc one where the guy double taps.
+
 
 
 

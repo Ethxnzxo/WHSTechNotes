@@ -211,11 +211,11 @@ I kinda enjoy football i guess, i only really watch the AFC championship and NFC
 
 I believe some of the most important technology used in the olyimpics were the cameras and the sensors thru out all of the sports. We can especially see this in the skating one and the disc one where the guy double taps.
 
+# March 23, 2026
 
+Not gonna lie im the goat so i did exceptionally good this weekend in terms of predictions
 
+# March 30, 2026
 
-
-
-
-
-
+Upsets happen because sports always isnt about stats, its how well the team plays against the other team. Which means every team is beatable, so if the no. 1 seed isnt playing good they can lose, and same with every other team.
+Injuries also add onto this too, just look at last years march madness, it has a lot of upsets for that too.

@@ -219,3 +219,11 @@ Not gonna lie im the goat so i did exceptionally good this weekend in terms of p
 
 Upsets happen because sports always isnt about stats, its how well the team plays against the other team. Which means every team is beatable, so if the no. 1 seed isnt playing good they can lose, and same with every other team.
 Injuries also add onto this too, just look at last years march madness, it has a lot of upsets for that too.
+
+# April 9, 2026
+
+My amazing awesome plan would be to tell them how bossed up i mean because im  bossed up and cool. I would also say that the people would die and since im bossed up my convincing skills would work. How would work you may ask? Thats easy, since the humans created them i would be easily convince them.
+
+# April 13, 2026
+
+Technology helped the travel to the moon succeed because of everything. Technology caused the call stuff that let them call the president and other people too, same with the entire rocket and air.

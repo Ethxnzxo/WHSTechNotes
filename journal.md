@@ -227,3 +227,7 @@ My amazing awesome plan would be to tell them how bossed up i mean because im  b
 # April 13, 2026
 
 Technology helped the travel to the moon succeed because of everything. Technology caused the call stuff that let them call the president and other people too, same with the entire rocket and air.
+
+# April 20, 2026
+
+Music using AI isnt something i wouldnt tolerate because my sick beats cant be replicated by some mere computer. In seriousness, i think AI should not be used on music since it can be used on better stufff.

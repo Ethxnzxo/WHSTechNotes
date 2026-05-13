@@ -235,3 +235,11 @@ Music using AI isnt something i wouldnt tolerate because my sick beats cant be r
 # April 27, 2026
 
 Technology played abd currrently is playing a huge role in life right now. The whole reason im typing this right now is because of technology, and the prompt too ofcure, the phones, almost everything
+
+# May 6, 2026
+
+The actions that may be fed into ai is phone calls, google searchs, and scrollinhg on any media website. This can be told by the way AI acts now. Like chatgpt, gemini.
+
+# May 11, 2026
+
+Ive gotten so much better at time management, and commuinication. This isnt only from school, since ive went to this camp at rice university for a week and had to work with others.
